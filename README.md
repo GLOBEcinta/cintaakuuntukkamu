@@ -1,0 +1,2 @@
+# cintaakuuntukkamu
+Kata kunci GLOBEcinta
